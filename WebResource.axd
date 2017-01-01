@@ -1,1 +1,0 @@
-{"f":5,"c":28,"m":"Happy new year firends from Sonis4347@gmail.com Team\nNote: We have uploaded new version on drive with random waiting time. Also Its highly recommended to use only 30secs as waiting time."}
